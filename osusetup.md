@@ -1,6 +1,6 @@
 # Introduction thing or smth
 
-Hello! Since you have made it this far you probably already know the basics from my osu! profile. In short for whoever might somehow find this link. I enjoy a funky funny rhythm game called osu! and occasionally play competetively in tournaments. Anyway here is the basic information for your eyes to look at the consider life choices + the skins I use at the end
+Hello! Since you have made it this far you probably already know the basics from my osu! profile. In short for whoever might somehow find this link. I enjoy a funky funny rhythm game called osu! and occasionally play competetively in tournaments. Anyway here is the basic information for your eyes to look at while you consider life choices + the skins I use at the end
 
 ![2gsnGes](https://github.com/daoxide/daoxide.github.io/assets/147141372/a67afb55-ad7c-4f85-afcc-8f4bf29bbae9)
 
@@ -34,6 +34,6 @@ I have the super useful and amazing CTH-480 which has touch features!! wowza.
 
 
 # tyvm, if you have added me on osu please tell me i need to farm mutuals rää. 
-tourney invites also welcomed
-                             
-![ayame-nakiri-ayame](https://github.com/daoxide/daoxide.github.io/assets/147141372/823e2114-92bc-42b3-b398-9ebf9db47dc5)
+tourney invites also welcomed, hmu on discord or if you see me ingame :)
+
+![Näyttökuva 2023-10-06 123551](https://github.com/daoxide/daoxide.github.io/assets/147141372/25d2ae37-4407-43b8-8344-abe4f7a28c51) ![ayame-nakiri-ayame](https://github.com/daoxide/daoxide.github.io/assets/147141372/823e2114-92bc-42b3-b398-9ebf9db47dc5)
