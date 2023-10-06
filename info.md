@@ -43,3 +43,9 @@ Epic moments
 [**[6.26 ⭐] daoxide | DUSTCELL - Narazumono [Azyeus Expert] +HR 98.3%**](https://link.issou.best/y01WU7)
 
 [**[6.61 ⭐] daoxide | Halozy - Secret Sister Complex [Flandre Scarlet] +DT 99.98%**](https://link.issou.best/T6OIvW)
+
+
+
+https://github.com/daoxide/daoxide-osu-setup/assets/147141372/a431fd30-083d-495a-bbca-bb4b37bb79cb
+
+
