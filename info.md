@@ -41,4 +41,5 @@ tourney invites also welcomed, hmu on discord or if you see me ingame :)
 Epic moments
 
 [**[6.26 ⭐] daoxide | DUSTCELL - Narazumono [Azyeus Expert] +HR 98.3%**](https://link.issou.best/y01WU7)
-[**[6.61 ⭐] daoxide | Halozy - Secret Sister Complex [Flandre Scarlet] +DT 99.98%**(https://link.issou.best/T6OIvW)
+
+[**[6.61 ⭐] daoxide | Halozy - Secret Sister Complex [Flandre Scarlet] +DT 99.98%**](https://link.issou.best/T6OIvW)
