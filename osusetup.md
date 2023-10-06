@@ -26,5 +26,8 @@ I have the super useful and amazing CTH-480 which has touch features!! wowza.
 [![ffae](https://github.com/daoxide/daoxide.github.io/assets/147141372/29ab6680-a117-4dd3-9e1e-7afcfef854f2)
 ](https://osu.ppy.sh/ss/18834850/ffae)
 
-# [**D-1**](
+# [**D-1**](https://drive.google.com/file/d/1TpCq7BTYduberjgRURZgMhEhVKrjpzP3/view?usp=sharing)
 ![7093](https://github.com/daoxide/daoxide.github.io/assets/147141372/88f98228-dbb7-4c9f-a020-5f4f2c30e7e9)
+
+# [**D-2**](https://drive.google.com/file/d/1Wphiu-Rk7Zt6dhSD_zXmUiHSOexfzsOh/view?usp=sharing)
+![screenshot390](https://github.com/daoxide/daoxide.github.io/assets/147141372/f47f8c18-75e5-4ff0-9c7f-54f92d5f645c)
