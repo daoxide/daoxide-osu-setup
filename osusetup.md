@@ -31,3 +31,9 @@ I have the super useful and amazing CTH-480 which has touch features!! wowza.
 
 # [**D-2**](https://drive.google.com/file/d/1Wphiu-Rk7Zt6dhSD_zXmUiHSOexfzsOh/view?usp=sharing)
 ![screenshot390](https://github.com/daoxide/daoxide.github.io/assets/147141372/f47f8c18-75e5-4ff0-9c7f-54f92d5f645c)
+
+
+# tyvm, if you have added me on osu please tell me i need to farm mutuals rää. 
+tourney invites also welcomed
+                             
+![ayame-nakiri-ayame](https://github.com/daoxide/daoxide.github.io/assets/147141372/823e2114-92bc-42b3-b398-9ebf9db47dc5)
