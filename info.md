@@ -37,3 +37,8 @@ I have the super useful and amazing CTH-480 which has touch features!! wowza.
 tourney invites also welcomed, hmu on discord or if you see me ingame :)
 
 ![Näyttökuva 2023-10-06 123551](https://github.com/daoxide/daoxide.github.io/assets/147141372/25d2ae37-4407-43b8-8344-abe4f7a28c51) ![ayame-nakiri-ayame](https://github.com/daoxide/daoxide.github.io/assets/147141372/823e2114-92bc-42b3-b398-9ebf9db47dc5)
+
+Epic moments
+
+[**[6.26 ⭐] daoxide | DUSTCELL - Narazumono [Azyeus Expert] +HR 98.3%**](https://link.issou.best/y01WU7)
+[**[6.61 ⭐] daoxide | Halozy - Secret Sister Complex [Flandre Scarlet] +DT 99.98%**(https://link.issou.best/T6OIvW)
