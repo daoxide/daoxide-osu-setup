@@ -33,7 +33,7 @@ I have the super useful and amazing CTH-480 which has touch features!! wowza.
 ![screenshot390](https://github.com/daoxide/daoxide.github.io/assets/147141372/f47f8c18-75e5-4ff0-9c7f-54f92d5f645c)
 
 # [**Amasetic4.0**](https://drive.google.com/file/d/1W2jYX97SNfnCb6Pjqjr9s8C8p8c_RLI7/view)
-No preview cause im lazy but I use Amasetic's skin often https://osu.ppy.sh/users/11375251
+No preview cause im lazy but I use [Amasetic's](https://osu.ppy.sh/users/11375251) skin often 
 
 # tyvm, if you have added me on osu please tell me i need to farm mutuals rää. 
 tourney invites also welcomed, hmu on discord or if you see me ingame :)
