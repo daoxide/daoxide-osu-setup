@@ -24,8 +24,8 @@ I have the super useful and amazing CTH-480 which has touch features!! wowza.
 
 
 # SKINS OMG!!
-## MAIN SKIN
-# [**DHR**](https://drive.google.com/file/d/1ufgyIoRHWP3gvBoBGbbKGHZS6_yTWWfM/view?usp=sharing)
+
+# [**DHR**](https://drive.google.com/file/d/1ufgyIoRHWP3gvBoBGbbKGHZS6_yTWWfM/view?usp=sharing) - current main skin
 
 https://github.com/daoxide/daoxide-osu-setup/assets/147141372/1df8fbdc-d1d9-4dd6-b00a-6553b5ec0c2e
 
