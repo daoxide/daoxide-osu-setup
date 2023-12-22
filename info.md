@@ -10,16 +10,16 @@ The name of the monitor is AOC 25G3ZM/BK 24,5" and hosts a whopping 240hz monito
 
 ## Wooting 60HE
 
-The big wooter that everyone knows, I have gone and swapped the switches for the lighter Lekker 45 switches for my A and D keys (Yes I am silly goober who uses ring index). Also switched keycaps to the HyperX pudding set cause the Wooting one started breaking apart.
 
-![image](https://github.com/daoxide/daoxide-osu-setup/assets/147141372/7a65c8f4-b847-44b9-8963-3109ef61810a)
+The big wooter that everyone knows, I have gone and swapped the switches for the lighter Lekker 45 switches for my F and H keys (Yes I am silly goober who uses ring index). Also switched keycaps to the HyperX pudding set cause the Wooting one started breaking apart.
+
+![Näyttökuva 2023-12-22 102229](https://github.com/daoxide/daoxide-osu-setup/assets/147141372/85429c9c-6a5a-43f9-9dfb-5c678392dd13)
 
 
 ## El tableto
 
 I have the super useful and amazing CTH-480 which has touch features!! wowza.
-
-![image](https://github.com/daoxide/daoxide-osu-setup/assets/147141372/5db1a551-a500-44c7-8bd8-6d6bec3ecf0d) ![image](https://github.com/daoxide/daoxide-osu-setup/assets/147141372/8dea6cf8-1769-4e57-afdc-6d22b602ed17)
+![Näyttökuva 2023-12-22 102302](https://github.com/daoxide/daoxide-osu-setup/assets/147141372/d905f1bb-36eb-49ad-ba3b-a20ba8e22cf8) ![image](https://github.com/daoxide/daoxide-osu-setup/assets/147141372/8dea6cf8-1769-4e57-afdc-6d22b602ed17)
 
 
 
