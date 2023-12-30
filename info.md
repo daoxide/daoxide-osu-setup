@@ -12,9 +12,6 @@ The name of the monitor is AOC 25G3ZM/BK 24,5" and hosts a whopping 240hz monito
 
 iKBC CD87 V2 (Brown Switches), Index Ring tapping
 
-![Näyttökuva 2023-12-22 102229](https://github.com/daoxide/daoxide-osu-setup/assets/147141372/85429c9c-6a5a-43f9-9dfb-5c678392dd13)
-
-
 ## El tableto
 
 I have the super useful and amazing CTH-480 which has touch features!! wowza.
